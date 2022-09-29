@@ -1,4 +1,4 @@
 - 👋 Opa,bão?
 - 👀 O que tá fazendo aqui?
 
--> Meu servidor de discord: htttps://www.discord.com/dreamersmc <-
+-> Meu servidor de discord: www.discord.com/dreamersmc <-
